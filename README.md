@@ -1,6 +1,6 @@
 <div align="center">
 
-# 🚧 **Project Coming Soon!** 🚀
+# 🚧 **Project Coming Shortly!** 🚀
 
 ## **Thank you for your kind patience!** 🙏✨
 
