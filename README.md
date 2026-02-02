@@ -4,7 +4,7 @@
 
 ## **Thank you for your kind patience!** 🙏✨
 
-> ## ✨🚧 **This page appears if the author is making advancement or resolving back-end errors with the current project** 🙏🔔
+> ## ✨🚧 **This page appears if the author is making improvements or resolving back-end errors with the current project** 🙏🔔
 
 <br/>
 
